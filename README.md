@@ -16,9 +16,9 @@ Being a relatively new addition to the Specialty coffee scene, both kinds of pro
 
 Specialty instant coffee is a type of coffee that maintains the complex flavors and aroma of specialty coffee beans while offering the convenience and portability of traditional instant coffee. It's ideal for those times when brewing a fresh pot isn't an option, like when you're: 
 
-• Travelling
-• Camping or hiking
-• On a tight schedule
+- Travelling
+- Camping or hiking
+- On a tight schedule
 
 With Specialty-grade coffees now available in the actual portable format, a home barista probably will mostly stay the same but will definitely become richer with fast and easy-to-brew options. 
 
