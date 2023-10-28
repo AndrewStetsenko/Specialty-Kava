@@ -1,5 +1,7 @@
 Welcome!
 
+Specialty Kava is a freshly launched blog about Specialty Coffee in Slovenia.
+
 **Freshly Ground Specialty Coffee on the go.**
 
 If you love good coffee and are constantly on the go, you've probably encountered a familiar problem. You want to enjoy a high-quality, freshly brewed cup of coffee. Still, you either don't have the time to brew it yourself, or you can't find a coffee shop nearby that meets your exacting standards. Luckily, coffee science has a solution to this parrel: coffee drip bags filled with specially curated, freshly grounded, well-preserved, ready-to-use, and top-notch specialty coffee. 
@@ -27,6 +29,6 @@ But yet again, luckily, there is a company that provides these unique Slovene co
 
 While not a technological innovation in coffee products, Drip bags and Instant coffee made of Specialty-grade beans are indeed a new and unique experience. 
 
-Enjoy more articles about Specialty Coffee **[here](https://specialtykava.si)**.
+Enjoy more articles about Specialty Coffee in Sloveina **[here](https://specialtykava.si)**.
 
 
